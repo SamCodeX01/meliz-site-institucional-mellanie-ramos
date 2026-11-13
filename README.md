@@ -26,4 +26,4 @@ O design do site segue rigorosamente a identidade visual da marca:
 
 * **Instagram:** [@psicologa.mellanieramos](https://instagram.com/psicologa.mellanieramos)[cite: 6]
 * **E-mail:** mellanie.meliz.ramos@gmail.com[cite: 6]
-* **Telefone/WhatsApp:** (11) 93093-5640[cite: 6]
+* **Telefone/WhatsApp:** (11) 97216-5815[cite: 6]
